@@ -1,1 +1,1 @@
-proyecto dual 
+proyecto dual sdasdasdas
