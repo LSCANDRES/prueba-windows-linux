@@ -1,1 +1,1 @@
-proyecto dual sdasdasdas
+proyecto dual kakakakakak
